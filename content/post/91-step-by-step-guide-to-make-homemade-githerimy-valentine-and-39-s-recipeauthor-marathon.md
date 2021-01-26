@@ -1,0 +1,101 @@
+---
+description: "Step-by-Step Guide to Make Homemade Githeri#my Valentine&amp;#39;s recipe#author marathon"
+title: "Step-by-Step Guide to Make Homemade Githeri#my Valentine&amp;#39;s recipe#author marathon"
+slug: 91-step-by-step-guide-to-make-homemade-githerimy-valentine-and-39-s-recipeauthor-marathon
+date: 2020-11-25T16:16:13.745Z
+image: https://img-global.cpcdn.com/recipes/d51de2be8c077b73/751x532cq70/githerimy-valentines-recipeauthor-marathon-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/d51de2be8c077b73/751x532cq70/githerimy-valentines-recipeauthor-marathon-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/d51de2be8c077b73/751x532cq70/githerimy-valentines-recipeauthor-marathon-recipe-main-photo.jpg
+author: Blake Cortez
+ratingvalue: 4.6
+reviewcount: 10588
+recipeingredient:
+- "2 cups pre boiled maize"
+- "2 cups pre boiled beans"
+- "1/2 kg meat"
+- "2 tomatoes"
+- "1 large onion"
+- "2 large carrots"
+- "1 bunch dhania"
+- "4 cloves garlic"
+- "1 piece ginger"
+- " Salt and spicesblack peppercurry powderroyco"
+- "1 green pepper"
+- " Water"
+recipeinstructions:
+- "Prepare the ingredients."
+- "In a sufuria heat cooking oil and add onions and potatoes and let it cook for 3 minutes."
+- "Add meat."
+- "Add carrots, green pepper and tomatoes.Leave it to cook for five minutes."
+- "Add garlic and ginger."
+- "Add maize and beans."
+- "Add salt and spices and stir.Then add water.Cover and let it cook until ready."
+- "Add dhania."
+- "Serve and enjoy."
+categories:
+- Recipe
+tags:
+- githerimy
+- valentines
+- recipeauthor
+
+katakunci: githerimy valentines recipeauthor 
+nutrition: 280 calories
+recipecuisine: American
+preptime: "PT31M"
+cooktime: "PT46M"
+recipeyield: "3"
+recipecategory: Lunch
+
+---
+
+
+![Githeri#my Valentine&#39;s recipe#author marathon](https://img-global.cpcdn.com/recipes/d51de2be8c077b73/751x532cq70/githerimy-valentines-recipeauthor-marathon-recipe-main-photo.jpg)
+
+Hey everyone, I hope you're having an incredible day today. Today, I'm gonna show you how to make a distinctive dish, githeri#my valentine&#39;s recipe#author marathon. It is one of my favorites. This time, I'm gonna make it a little bit tasty. This is gonna smell and look delicious.
+
+Githeri#my Valentine&#39;s recipe#author marathon is one of the most well liked of recent trending meals in the world. It is appreciated by millions every day. It is simple, it is fast, it tastes yummy. They are fine and they look wonderful. Githeri#my Valentine&#39;s recipe#author marathon is something that I've loved my whole life.
+
+This is a Kenyan staple meal made of boiled green maize and beans. I have made a guide that uses basic ingredients and if you follow it I guarantee you will. Githeri is native to East Kenya in particular and Africa as a whole - a one-pot meal, traditional made out of boiled corn and beans only. Corn and beans is a staple in African cuisine, they are cooked fresh.
+
+
+To get started with this recipe, we have to prepare a few components. You can have githeri#my valentine&#39;s recipe#author marathon using 12 ingredients and 9 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Githeri#my Valentine&#39;s recipe#author marathon:
+
+1. Make ready 2 cups pre boiled maize
+1. Take 2 cups pre boiled beans
+1. Take 1/2 kg meat
+1. Make ready 2 tomatoes
+1. Make ready 1 large onion
+1. Prepare 2 large carrots
+1. Take 1 bunch dhania
+1. Make ready 4 cloves garlic
+1. Take 1 piece ginger
+1. Make ready  Salt and spices.(black pepper,curry powder,royco)
+1. Make ready 1 green pepper
+1. Get  Water
+
+
+Githeri is a simple yet nourishing Kenyan dish that originated with Kikuyu tribe. The combination of beans and corn supplies a full complement of protein. Githeri is a Kenyan staple food consisting of beans and maize that are stewed with onions, tomatoes, and sometimes potatoes or meat chunks. The stew is often flavored with cumin, turmeric. Последние твиты от Githeri (@GitheriMedia). 
+
+<!--inarticleads2-->
+
+##### Instructions to make Githeri#my Valentine&#39;s recipe#author marathon:
+
+1. Prepare the ingredients.
+1. In a sufuria heat cooking oil and add onions and potatoes and let it cook for 3 minutes.
+1. Add meat.
+1. Add carrots, green pepper and tomatoes.Leave it to cook for five minutes.
+1. Add garlic and ginger.
+1. Add maize and beans.
+1. Add salt and spices and stir.Then add water.Cover and let it cook until ready.
+1. Add dhania.
+1. Serve and enjoy.
+
+
+Githeri is a Kenyan staple food consisting of beans and maize that are stewed with onions, tomatoes, and sometimes potatoes or meat chunks. The stew is often flavored with cumin, turmeric. Последние твиты от Githeri (@GitheriMedia). News , reported news , and deemed news. See recipes for Githeri special, Githeri with bananas too. This dish is a basic maize (corn) and bean stew and it originated in the Kikuyu tribe in Africa. 
+
+So that is going to wrap this up for this special food githeri#my valentine&#39;s recipe#author marathon recipe. Thanks so much for reading. I am confident you will make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

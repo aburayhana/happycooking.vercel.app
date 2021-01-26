@@ -1,0 +1,90 @@
+---
+description: "Easiest Way to Make Homemade Burrito bowl 🍅🥑"
+title: "Easiest Way to Make Homemade Burrito bowl 🍅🥑"
+slug: 52-easiest-way-to-make-homemade-burrito-bowl
+date: 2020-10-14T18:32:13.634Z
+image: https://img-global.cpcdn.com/recipes/8df25c5c8e9170b6/751x532cq70/burrito-bowl-🍅🥑-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/8df25c5c8e9170b6/751x532cq70/burrito-bowl-🍅🥑-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/8df25c5c8e9170b6/751x532cq70/burrito-bowl-🍅🥑-recipe-main-photo.jpg
+author: Alberta Brewer
+ratingvalue: 4.2
+reviewcount: 43885
+recipeingredient:
+- "100 g skinless chicken breast"
+- "2 tbsp guacamole pm me for the recipe"
+- "1 tbsp sour cream"
+- "1 small tomatoe"
+- "1 small brown onion"
+- "to taste Mozzarella cheese"
+- "1 corn or wheat tortilla I prefer corn"
+- "to taste Lettuce and baby spinach"
+- " Salt and pepper"
+- " Mixed herbs"
+- " Chilli flakes"
+- " Black beans optional"
+recipeinstructions:
+- "Preheat the oven at 250 C. Please the tortilla on the back of a muffin mould making a star shape. Bake for 10-15 minutes. See photo"
+- "Chop the chicken into small cubes and grill on a pan with a little olive oil, salt and pepper to taste, some chilli flakes and mixed herbs"
+- "Carefully take out the tortilla and place it on a plate. Fill up with layers of cheese, onion, tomatoe, lettuce and spinach. Top up with more cheese, sour cream and guacamole. Enjoy!"
+- "Breakfast alternative - have it with scrambled eggs instead of chicken"
+categories:
+- Recipe
+tags:
+- burrito
+- bowl
+
+katakunci: burrito bowl 
+nutrition: 238 calories
+recipecuisine: American
+preptime: "PT12M"
+cooktime: "PT31M"
+recipeyield: "1"
+recipecategory: Dinner
+
+---
+
+
+![Burrito bowl 🍅🥑](https://img-global.cpcdn.com/recipes/8df25c5c8e9170b6/751x532cq70/burrito-bowl-🍅🥑-recipe-main-photo.jpg)
+
+Hello everybody, hope you're having an incredible day today. Today, I'm gonna show you how to make a distinctive dish, burrito bowl 🍅🥑. One of my favorites food recipes. For mine, I am going to make it a little bit tasty. This is gonna smell and look delicious.
+
+Burrito bowl 🍅🥑 is one of the most popular of current trending meals in the world. It's enjoyed by millions every day. It is easy, it is fast, it tastes yummy. They are nice and they look wonderful. Burrito bowl 🍅🥑 is something which I've loved my entire life.
+
+Take burrito bowls to the next level by topping them with chicken fajita, smoky shrimp, sweet potato or spicy turkey. Come visit The Burrito Bowl for a unique taste inspired by flavors of Mexico as well as our own homemade recipes. We have a large assortment fresh meats &amp; vegetables right from the farm. Choose your favorite fillings and enjoy the fresh homemade flavors from The Burrito Bowl!
+
+
+To begin with this particular recipe, we have to first prepare a few ingredients. You can have burrito bowl 🍅🥑 using 12 ingredients and 4 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Burrito bowl 🍅🥑:
+
+1. Make ready 100 g skinless chicken breast
+1. Get 2 tbsp guacamole (pm me for the recipe)
+1. Take 1 tbsp sour cream
+1. Take 1 small tomatoe
+1. Prepare 1 small brown onion
+1. Get to taste Mozzarella cheese
+1. Get 1 corn or wheat tortilla (I prefer corn)
+1. Prepare to taste Lettuce and baby spinach
+1. Take  Salt and pepper
+1. Get  Mixed herbs
+1. Get  Chilli flakes
+1. Take  Black beans (optional)
+
+
+You&#39;ll barely notice the difference when you pile your Mexican bowl high with colorful, flavorful View image. Burrito Bowls. this link is to an external site that may or may not meet accessibility guidelines. So you know it has to be good. The chicken comes out perfectly tender but the rice is the true hero - soaked with all the burito bowl flavors from the IP magic. 
+
+<!--inarticleads2-->
+
+##### Steps to make Burrito bowl 🍅🥑:
+
+1. Preheat the oven at 250 C. Please the tortilla on the back of a muffin mould making a star shape. Bake for 10-15 minutes. See photo
+1. Chop the chicken into small cubes and grill on a pan with a little olive oil, salt and pepper to taste, some chilli flakes and mixed herbs
+1. Carefully take out the tortilla and place it on a plate. Fill up with layers of cheese, onion, tomatoe, lettuce and spinach. Top up with more cheese, sour cream and guacamole. Enjoy!
+1. Breakfast alternative - have it with scrambled eggs instead of chicken
+
+
+So you know it has to be good. The chicken comes out perfectly tender but the rice is the true hero - soaked with all the burito bowl flavors from the IP magic. This recipe is filled with all the flavors of a burrito but without the tortilla wrap. Burrito Bowls Recipe. this link is to an external site that may or may not meet accessibility guidelines. This healthy burrito bowl is chock full of veggies and greens, perfect for a filling lunch. 
+
+So that's going to wrap this up for this exceptional food burrito bowl 🍅🥑 recipe. Thanks so much for reading. I am sure you will make this at home. There is gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!

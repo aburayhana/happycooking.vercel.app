@@ -1,0 +1,101 @@
+---
+description: "Recipe of Perfect NATIVE JOLLOF RICE /PALM OIL RICE - IWUK EDESI RECIPE"
+title: "Recipe of Perfect NATIVE JOLLOF RICE /PALM OIL RICE - IWUK EDESI RECIPE"
+slug: 564-recipe-of-perfect-native-jollof-rice-palm-oil-rice-iwuk-edesi-recipe
+date: 2020-12-03T06:28:10.985Z
+image: https://img-global.cpcdn.com/recipes/b8fceeeb9c7675e4/751x532cq70/native-jollof-rice-palm-oil-rice-iwuk-edesi-recipe-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/b8fceeeb9c7675e4/751x532cq70/native-jollof-rice-palm-oil-rice-iwuk-edesi-recipe-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/b8fceeeb9c7675e4/751x532cq70/native-jollof-rice-palm-oil-rice-iwuk-edesi-recipe-recipe-main-photo.jpg
+author: Walter Gill
+ratingvalue: 4
+reviewcount: 29075
+recipeingredient:
+- "3 Cups already parboiled rice"
+- "2-3 Chopped shombo Habanero pepper"
+- "1 1/2 Chopped medium size onion"
+- "1/2 Cup125ml of Palmoil"
+- "3-5 Blended Scotch bonnet ata rodo"
+- "3 Cups water or ChickenBeef stock"
+- "3 Tbsp locust beans"
+- "1-2 Cups Shredded smokes fish"
+- "2-3 Pieces Dice cooked kpomo"
+- "2 Seasoning cubes"
+- "1 Cup Sliced Efoshoko soko"
+- "to taste Salt"
+- "1/4 Cup Crayfish"
+- "1/2 Cup Prawn"
+recipeinstructions:
+- "Add palm oil in a pot set on medium heat, when hot add sliced onions. Fry till translucent (it takes about 6 to 8 minutes)"
+- "Add locust beans and saute till fragrant, then add blended crayfish (fry for 2-3minutes). Add blended scotch bonnet and chopped shombo"
+- "Add seasoning cubes, salt to taste and fry for 5-6minutes. (Stir occasionally. If using stock, try not to add much salt because the stock already has a considerable amount of salt)"
+- "Add 3 cups of water and cook for 4 minutes, then add chopped kpomo."
+- "Add parboiled rice, Stir and combine thoroughly."
+- "Add smoked fish and prawn then combine again,cover and allow to heat, till rice is properly cooked then turn off heat."
+- "Add Efo-shoko, Stir to combine. And food is Ready!!!!!"
+categories:
+- Recipe
+tags:
+- native
+- jollof
+- rice
+
+katakunci: native jollof rice 
+nutrition: 112 calories
+recipecuisine: American
+preptime: "PT40M"
+cooktime: "PT35M"
+recipeyield: "4"
+recipecategory: Lunch
+
+---
+
+
+![NATIVE JOLLOF RICE /PALM OIL RICE - IWUK EDESI RECIPE](https://img-global.cpcdn.com/recipes/b8fceeeb9c7675e4/751x532cq70/native-jollof-rice-palm-oil-rice-iwuk-edesi-recipe-recipe-main-photo.jpg)
+
+Hello everybody, it is John, welcome to our recipe page. Today, I will show you a way to make a distinctive dish, native jollof rice /palm oil rice - iwuk edesi recipe. It is one of my favorites food recipes. This time, I will make it a little bit unique. This is gonna smell and look delicious.
+
+The native Jollof Rice is a versatile dish that combines cooked rice with a variety of indigenous ingredients. Anyway or any how you cook it, it still comes out delicious! Chicken Recipes: How To Make Curry Chicken It&#39;s insanely delicious and the only Native Jollof Rice recipe you need.
+
+NATIVE JOLLOF RICE /PALM OIL RICE - IWUK EDESI RECIPE is one of the most popular of current trending meals on earth. It's appreciated by millions every day. It is easy, it's fast, it tastes delicious. NATIVE JOLLOF RICE /PALM OIL RICE - IWUK EDESI RECIPE is something which I have loved my whole life. They're fine and they look wonderful.
+
+
+To get started with this particular recipe, we must first prepare a few ingredients. You can cook native jollof rice /palm oil rice - iwuk edesi recipe using 14 ingredients and 7 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make NATIVE JOLLOF RICE /PALM OIL RICE - IWUK EDESI RECIPE:
+
+1. Get 3 Cups already parboiled rice
+1. Prepare 2-3 Chopped shombo (Habanero pepper)
+1. Prepare 1 1/2 Chopped medium size onion
+1. Take 1/2 Cup/125ml of Palmoil
+1. Prepare 3-5 Blended Scotch bonnet (ata rodo)
+1. Take 3 Cups water or Chicken/Beef stock
+1. Prepare 3 Tbsp locust beans
+1. Make ready 1-2 Cups Shredded smokes fish
+1. Get 2-3 Pieces Dice cooked kpomo
+1. Take 2 Seasoning cubes
+1. Prepare 1 Cup Sliced Efo-shoko (soko)
+1. Take to taste Salt
+1. Make ready 1/4 Cup Crayfish
+1. Make ready 1/2 Cup Prawn
+
+
+Native Jollof Rice or Iwuk Edesi is a delicious Nigerian delicacy. Native Jollof Rice is a great contender to any Jollof recipe in my opinion. Another reason I suspect Iwuk edesi has been relegated to the background over the years is because of the now debunked theory that Palm oil is bad for you. We called it &#34;Iresi elepo&#34;, english for Palm oil rice. 
+
+<!--inarticleads2-->
+
+##### Steps to make NATIVE JOLLOF RICE /PALM OIL RICE - IWUK EDESI RECIPE:
+
+1. Add palm oil in a pot set on medium heat, when hot add sliced onions. - Fry till translucent (it takes about 6 to 8 minutes)
+1. Add locust beans and saute till fragrant, then add blended crayfish (fry for 2-3minutes). Add blended scotch bonnet and chopped shombo
+1. Add seasoning cubes, salt to taste and fry for 5-6minutes. (Stir occasionally. If using stock, try not to add much salt because the stock already has a considerable amount of salt)
+1. Add 3 cups of water and cook for 4 minutes, then add chopped kpomo.
+1. Add parboiled rice, Stir and combine thoroughly.
+1. Add smoked fish and prawn then combine again,cover and allow to heat, till rice is properly cooked then turn off heat.
+1. Add Efo-shoko, Stir to combine. And food is Ready!!!!!
+
+
+Another reason I suspect Iwuk edesi has been relegated to the background over the years is because of the now debunked theory that Palm oil is bad for you. We called it &#34;Iresi elepo&#34;, english for Palm oil rice. With being a food blogger, I found out that the Efik equivalent is Iwuk Edesi. Y&#39;all know how much I love Efik food. Native jollof rice or palm oil rice or iwuk edesi originates from the Southern part of Nigeria and differs from the conventional jollof rice. 
+
+So that is going to wrap this up with this exceptional food native jollof rice /palm oil rice - iwuk edesi recipe recipe. Thanks so much for your time. I'm confident that you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
